@@ -1,5 +1,3 @@
-# Alan5598-
-
 # 💫 About Me:
 👩‍💻 FULLSTACK DEVELOPER<br><br>🎨 GRAPHIC DESIGNER<br><br>👩‍💻 WEBSITE DESIGNER AND DEVELOPER<br>
 
